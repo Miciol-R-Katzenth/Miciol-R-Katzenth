@@ -4,7 +4,8 @@
 
 <div align ="center"> 
   <details>
-<summary> oi escreve algo aqui</summary>
-texto esse último coiso fecha a seta 
+<summary> FANDOMS ! ! !</summary>
+Funhouse, deltarune, animal hospital, my singing monsters and dandys world 
 </summary>
-oi
+oi ola 
+
