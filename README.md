@@ -29,6 +29,17 @@ KIN ! ! !</summary>
   
 THE KATZENTH WANTS TO SAY THANKS [KALEIDO](https://github.com/kaleidoskulls) FOR HELP MAKING GITHUB AND README!!!!!!
 
+
+https://github.com/user-attachments/assets/11c92e25-b038-4873-94f0-a3c3477850c3
+
+
+
+https://github.com/user-attachments/assets/d1399b2f-cc60-4f20-99ec-b46bb69c11d8
+
+<img width="736" height="841" alt="1000189397" src="https://github.com/user-attachments/assets/4e7ad66a-0d3b-411e-90cc-eae5df52c3f1" />
+<img width="715" height="972" alt="1000189398" src="https://github.com/user-attachments/assets/8a2405cc-db62-4be0-98be-44bbf899894d" />
+<img width="736" height="983" alt="1000189399" src="https://github.com/user-attachments/assets/03311dbb-3014-4e99-a617-373efffbae86" />
+
 <img width="1000" height="1000" alt="1000189380" src="https://github.com/user-attachments/assets/1fb0cea9-79e3-4c15-a04f-2906aabff9f9" />
 
 
