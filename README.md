@@ -30,9 +30,6 @@ KIN ! ! !</summary>
 THE KATZENTH WANTS TO SAY THANKS [KALEIDO](https://github.com/kaleidoskulls) FOR HELP MAKING GITHUB AND README!!!!!!
 
 
-https://github.com/user-attachments/assets/cb84a14b-191f-418c-bd1f-07f599c31eed
-
-
 <details>
   <summary> THE MOST BEAUTIFUL PEAKEST THING THAT YOU'LL EVER SEE IN LIFE ! ! ! !</summary>
 
