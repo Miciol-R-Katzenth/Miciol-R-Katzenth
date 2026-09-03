@@ -32,30 +32,4 @@ THE KATZENTH WANTS TO SAY THANKS [KALEIDO](https://github.com/kaleidoskulls) FOR
 <details>
   <summary></summary>
 
-<img width="736" height="684" alt="1000189401" src="https://github.com/user-attachments/assets/e0aad389-ac56-4a53-a368-8d91762a1d9a" />
-<img width="736" height="736" alt="1000189400" src="https://github.com/user-attachments/assets/92ad72b9-913f-45f6-9ace-fc9073737af6" />
-
-
-https://github.com/user-attachments/assets/11c92e25-b038-4873-94f0-a3c3477850c3
-
-
-
-https://github.com/user-attachments/assets/d1399b2f-cc60-4f20-99ec-b46bb69c11d8
-
-<img width="736" height="841" alt="1000189397" src="https://github.com/user-attachments/assets/4e7ad66a-0d3b-411e-90cc-eae5df52c3f1" />
-<img width="715" height="972" alt="1000189398" src="https://github.com/user-attachments/assets/8a2405cc-db62-4be0-98be-44bbf899894d" />
-<img width="736" height="983" alt="1000189399" src="https://github.com/user-attachments/assets/03311dbb-3014-4e99-a617-373efffbae86" />
-
-<img width="1000" height="1000" alt="1000189380" src="https://github.com/user-attachments/assets/1fb0cea9-79e3-4c15-a04f-2906aabff9f9" />
-
-
-https://github.com/user-attachments/assets/bd05d6f2-b05f-4b60-9fd2-1e74eb5e31ed
-
-<img width="735" height="754" alt="1000184075" src="https://github.com/user-attachments/assets/8a53bfe0-5667-492e-8571-ba0f8c1d3362" />
-<img width="736" height="564" alt="1000184557" src="https://github.com/user-attachments/assets/1bf92d96-415a-4491-92fa-b054a17318a5" />
-<img width="360" height="360" alt="1000184556" src="https://github.com/user-attachments/assets/255159ff-da0d-47c9-b417-f807a7e46a9a" />
-<img width="670" height="659" alt="1000184555" src="https://github.com/user-attachments/assets/004c8dee-9ebe-4d26-abd6-188f7c7700c8" />
-<img width="736" height="1016" alt="1000184602" src="https://github.com/user-attachments/assets/295d50b0-cdc6-48bb-8b9f-1332c0a0c5eb" />
-<img width="735" height="802" alt="1000189396" src="https://github.com/user-attachments/assets/74f1b4f9-836a-445c-bae0-9c8be546eec0" />
-<img width="736" height="1109" alt="1000189395" src="https://github.com/user-attachments/assets/0214f5ea-5747-4b6e-b903-c8c6104a9296" />
-</details>
+<img width="150" height="150" alt="aqua" src="https://github.com/user-attachments/assets/1fb0cea9-79e3-4c15-a04f-2906aabff9f9" />
