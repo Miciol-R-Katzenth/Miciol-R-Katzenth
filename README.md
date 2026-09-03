@@ -22,4 +22,6 @@ FANDOMS ! ! !</summary>
   <details>
 <summary> <img width="20" height="20" alt="1000188979" src="https://github.com/user-attachments/assets/44dcf0e2-b570-48bf-b02c-b03ce0398ec3" />
 KIN ! ! !</summary>
-<img width="20" height="20" alt="1000188976" src="https://github.com/user-attachments/assets/f9f7793f-50cc-477c-be97-46e712ca9fbb" /> 𑣲 Aqua ( deltarune ) .
+<img width="20" height="20" alt="1000188976" src="https://github.com/user-attachments/assets/f9f7793f-50cc-477c-be97-46e712ca9fbb" /> 𑣲 Aqua ( deltarune ) . </details>
+THE KATZENTH WANTS TO SAY THANKS KALEIDO FOR HELPING TO MAKE GITHUB AND README!!!!!!
+
