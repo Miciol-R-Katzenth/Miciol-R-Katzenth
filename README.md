@@ -30,3 +30,14 @@ KIN ! ! !</summary>
 THE KATZENTH WANTS TO SAY THANKS [KALEIDO](https://github.com/kaleidoskulls) FOR HELP MAKING GITHUB AND README!!!!!!
 
 <img width="1000" height="1000" alt="1000189380" src="https://github.com/user-attachments/assets/1fb0cea9-79e3-4c15-a04f-2906aabff9f9" />
+
+
+https://github.com/user-attachments/assets/bd05d6f2-b05f-4b60-9fd2-1e74eb5e31ed
+
+<img width="735" height="754" alt="1000184075" src="https://github.com/user-attachments/assets/8a53bfe0-5667-492e-8571-ba0f8c1d3362" />
+<img width="736" height="564" alt="1000184557" src="https://github.com/user-attachments/assets/1bf92d96-415a-4491-92fa-b054a17318a5" />
+<img width="360" height="360" alt="1000184556" src="https://github.com/user-attachments/assets/255159ff-da0d-47c9-b417-f807a7e46a9a" />
+<img width="670" height="659" alt="1000184555" src="https://github.com/user-attachments/assets/004c8dee-9ebe-4d26-abd6-188f7c7700c8" />
+<img width="736" height="1016" alt="1000184602" src="https://github.com/user-attachments/assets/295d50b0-cdc6-48bb-8b9f-1332c0a0c5eb" />
+<img width="735" height="802" alt="1000189396" src="https://github.com/user-attachments/assets/74f1b4f9-836a-445c-bae0-9c8be546eec0" />
+<img width="736" height="1109" alt="1000189395" src="https://github.com/user-attachments/assets/0214f5ea-5747-4b6e-b903-c8c6104a9296" />
