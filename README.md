@@ -16,6 +16,10 @@ FANDOMS ! ! !</summary>
 <img width="20" height="20" alt="1000188976" src="https://github.com/user-attachments/assets/e1e81584-8d47-4524-90bc-c7963f995277" /> 𑣲 My Singing Monsters 
 <br>
 <img width="20" height="20" alt="1000188976" src="https://github.com/user-attachments/assets/e1e81584-8d47-4524-90bc-c7963f995277" /> 𑣲 Dandys World 
-</summary>
-oi ola 
+</details>
 
+<div align ="center"> 
+  <details>
+<summary> <img width="20" height="20" alt="1000188979" src="https://github.com/user-attachments/assets/44dcf0e2-b570-48bf-b02c-b03ce0398ec3" />
+KIN ! ! !</summary>
+<img width="20" height="20" alt="1000188976" src="https://github.com/user-attachments/assets/f9f7793f-50cc-477c-be97-46e712ca9fbb" /> 𑣲 Aqua ( deltarune ) .
