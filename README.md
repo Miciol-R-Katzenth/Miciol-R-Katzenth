@@ -34,7 +34,10 @@ THE KATZENTH WANTS TO SAY THANKS [KALEIDO](https://github.com/kaleidoskulls) FOR
   <summary> THE MOST BEAUTIFUL PEAKEST THING THAT YOU'LL EVER SEE IN LIFE ! ! ! !</summary>
 
 <img width="150" height="150" alt="aqua" src="https://github.com/user-attachments/assets/1fb0cea9-79e3-4c15-a04f-2906aabff9f9" />
- <img width="150" height="150" alt="peak" src="https://github.com/user-attachments/assets/8d4f5edf-b2fc-44f3-8a47-76ae2f2de539">
+ <img width="150" height="150" alt="peak" src="https://github.com/user-attachments/assets/8d4f5edf-b2fc-44f3-8a47-76ae2f2de539"></details>
 
 
+  <details>
+<summary> 🐘 yo adress me </summary>
 
+<img width="250" height="150" alt="sure it is a FUNHOUSE." src="https://github.com/user-attachments/assets/27ca3237-2c45-45ee-b97b-0273a858669c" /></details>
