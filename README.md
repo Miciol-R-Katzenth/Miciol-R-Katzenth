@@ -1,5 +1,8 @@
 <div align ="center">
-<img width="400" height="400" alt="1000188987" src="https://github.com/user-attachments/assets/9f500827-7bf6-4672-af5c-e8be622c1a24" />
+<img width="450" height="270" alt="1000005732" src="https://github.com/user-attachments/assets/0a89fd2a-7c15-422b-9f0e-90763d6d7313" />
+
+
+
 <div align ="center">
   <img width="400" height="20" alt="1000188986" src="https://github.com/user-attachments/assets/159a4eab-8d14-4206-ae05-57030062e257" />
 
@@ -40,6 +43,6 @@ THE KATZENTH WANTS TO SAY THANKS [KALEIDO](https://github.com/kaleidoskulls) FOR
   <details>
 <summary> 🐘 yo adress me </summary>
 
-<img width="250" height="150" alt="sure it is a FUNHOUSE." src="https://github.com/user-attachments/assets/27ca3237-2c45-45ee-b97b-0273a858669c" /> <img width="150" height="150" alt="1000005945" src="https://github.com/user-attachments/assets/d887f6d9-3ec4-44aa-8592-b05e9153c994" /></details>
+ <img width="150" height="150" alt="1000005945" src="https://github.com/user-attachments/assets/d887f6d9-3ec4-44aa-8592-b05e9153c994" /></details>
 
 
