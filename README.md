@@ -43,6 +43,9 @@ THE KATZENTH WANTS TO SAY THANKS [KALEIDO](https://github.com/kaleidoskulls) FOR
   <details>
 <summary> 🐘 yo adress me </summary>
 
- <img width="150" height="150" alt="1000005945" src="https://github.com/user-attachments/assets/d887f6d9-3ec4-44aa-8592-b05e9153c994" /></details>
+ <img width="150" height="150" alt="1000005945" src="https://github.com/user-attachments/assets/d887f6d9-3ec4-44aa-8592-b05e9153c994" >
+<img width="150" height="150" alt="1000007644" src="https://github.com/user-attachments/assets/5ab033e7-a9af-429f-80bc-e1359f0bf6ac" />
+
+</details>
 
 
